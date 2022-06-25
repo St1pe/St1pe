@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me 
 - qqmail  :1014254223@qq.com
-- gmail   :sorry i forget this
+- gmail   :sorry i forget this.
 - phone   :8613294579132
 - 
 <!---
